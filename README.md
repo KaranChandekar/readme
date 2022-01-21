@@ -11,7 +11,7 @@
  🔗Currently ,I am a student pursuing my Bachelor's Degree(BCA) from University of Nagpur. 
 
 <hr>
-🔗 ☺️About Me
+🔗☺️About Me
  <hr>
 
 ▪️💻At the moment, I am aiming to upgrade my technical skills and develop web development projects.
