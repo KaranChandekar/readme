@@ -9,18 +9,18 @@
  🔗Currently ,I am a student pursuing my Bachelor's Degree(BCA) from University of Nagpur. 
 
 <hr>
-🔗☺️ **About Me**
+🔗 ☺️About Me
  <hr>
 
 ▪️💻At the moment, I am aiming to upgrade my technical skills and develop web development projects.
 
 ▪️🙌Open Source Projects are something I'd like to work on.
 
-▪️✨Interested in exploring the possibilities of "web Development
+▪️✨Interested in exploring the possibilities of "web Development"                                                                                                                                 
+
+▪️😅fun fact: I think I am Funny XD ✨
 
 ▪️📬To get in touch with me, please email me at juhinagpure143@gmail.com
- 
-▪️😅fun fact: I think I am Funny XD ✨
 
 
 <hr>
