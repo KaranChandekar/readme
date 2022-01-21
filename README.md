@@ -1,4 +1,5 @@
-![0f0f3505-b2c2-47be-9f4c-a89ef3a0c1df](https://user-images.githubusercontent.com/97795041/150485708-54809065-8d3d-4a76-ab21-abb1eb1320a3.jpg)
+![969797b0-a3dc-4128-87a1-2cae91350a93](https://user-images.githubusercontent.com/97795041/150488708-9f3211e7-1d37-46d4-9698-7ce9dc8b9c5a.jpg)
+
 
 
 <h1 align="center">Hi 👋, I'm JUHI NAGPURE , Web Developer💻🌐- in Process</h1>
